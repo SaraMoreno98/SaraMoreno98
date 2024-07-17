@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SaraMoreno98 | @saramo_graphic
+- 👀 I’m interested in Graphic Design and Web Development
+- 🌱 I’m currently learning App Development
+- 📫 You can reach me throught mail by saramo.graphic@gmail.com
+- 😄 Pronouns: She/Her
